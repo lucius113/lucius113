@@ -1,0 +1,8 @@
+- 👋 Oi! Eu sou Lucius Pedemonte Kirchheim;
+- 👀 Eu gosto de jogos eletrônicos, ler livros, xadrez, programação, desenhar, escrever livros, tirar foto, etc;
+- 🌱 Atualmente estou aprendendo programação na faculdade, aprendendo a programar no terminal do linux, e java;
+- 💞️ Eu sonho em ser um programador de jogos, especialmente eu desejo criar um jogo;
+- 📫 Contato: luciuspk@gmail.com;
+- 😄 Pronomes: chame me do que quiser, mas seja respeitoso.
+- ⚡ Fato Interessante: eu tenho uma conta no pexels, meu nome de usuário é Lucius PK. Também tenho um canal no youtube de música 8 bit, procure por Leondark Productions.
+- 
